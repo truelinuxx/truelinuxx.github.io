@@ -1,2 +1,3 @@
 # truelinuxx.github.io
-GitHub Page - truelinuxx
+
+August 2025 - Webpage in Progress
